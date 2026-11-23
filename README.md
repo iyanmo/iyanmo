@@ -1,7 +1,7 @@
 
 # Hi, I'm Iyan Momin
 
-### Aspiring Cybersecurity Professional | Security Operations | Identity & Access Management (IAM)
+### Cybersecurity Professional | Security Operations | Identity & Access Management (IAM)
 
 ## About Me
 
